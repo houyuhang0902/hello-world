@@ -10,5 +10,4 @@ abcdefg
 this is a devTemp for it brancha
 afa dfada
 添加了ssh连接的使用hhh
-123213123
-343434324324
+wo msater fenzh Tina年纪俄日欧冠 
